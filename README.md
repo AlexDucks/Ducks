@@ -1,0 +1,2 @@
+# Ducks
+https://ducks.lol/
